@@ -1,2 +1,2 @@
-Woxsen 4X Training Session
+Woxsen 4X4 Training Session
 
